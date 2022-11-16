@@ -13,6 +13,8 @@
 
 #### According to Tradition
 
+TBD
+
 #### Related
 
 The following words were to Peter from Christ concering Peter's death ([according to Church tradition he was crucified](TBD)):
@@ -36,3 +38,7 @@ The following words were to Peter from Christ concering Peter's death ([accordin
 > The Lord Jesus Christ be with thy spirit. Grace be with you. Amen.
 > 
 > _Reference: 2 Timothy 4:16-22, King James Version_
+
+#### According to Tradition
+
+TBD
