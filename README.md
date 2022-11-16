@@ -22,3 +22,17 @@ The following words were to Peter from Christ concering Peter's death ([accordin
 > This spake he, signifying by what death he should glorify God. And when he had spoken this, he saith unto him, Follow me.
 
 > _Reference: John 21:18-19, King James Version_
+
+### St. Paul
+
+#### In Scripture
+
+> At my first answer no man stood with me, but all men forsook me: I pray God that it may not be laid to their charge. Notwithstanding the Lord stood with me, and strengthened me; that by me the preaching might be fully known, and that all the Gentiles might hear: and I was delivered out of the mouth of the lion.
+> And the Lord shall deliver me from every evil work, and will preserve me unto his heavenly kingdom: to whom be glory for ever and ever. Amen.
+> Salute Prisca and Aquila, and the household of Onesiphorus.
+> Erastus abode at Corinth: but Trophimus have I left at Miletum sick.
+> Do thy diligence to come before winter. Eubulus greeteth thee, and Pudens, and Linus, and Claudia, and all the brethren.
+>
+> The Lord Jesus Christ be with thy spirit. Grace be with you. Amen.
+> 
+> _Reference: 2 Timothy 4:16-22, King James Version_
